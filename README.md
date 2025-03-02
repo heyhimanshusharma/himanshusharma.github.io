@@ -1,1 +1,1 @@
-# heyhimanshusharma-himanshusharma.github.io
+# himanshusharma.github.io
